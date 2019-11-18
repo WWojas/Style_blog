@@ -12,7 +12,7 @@ Over the last few decades, men's fashion has been a subject of a massive transfo
 
 New male style trends keep popping up from everywhere and with a more or less subtle help of bloggers and media celebrities unconsciously endorsing this new style of dressing they’ve started to become our new norm.
 
-![Orange jacket](./orange.jpg)
+
  
 Which would be all fine and great by me if it wasn’t for the simple observation that’s been bothering me for quite some time now.
 
