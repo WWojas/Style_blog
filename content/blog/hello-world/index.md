@@ -1,35 +1,69 @@
 ---
 title: Welcome to the No-Bullshit Style Blog for Men 
-date: "2015-05-01T22:12:03.284Z"
+date: "2019-01-01"
 description: ""
 ---
 
-![Hero img](./mainHelloImg.jpg)
+![Hero img](./stylish_man.jpg)
 
-From baggy suits, polished oxford shoes and those silly flat caps you can see in Peaky Blinders to skinny chinos, girly colours, knit ties brightly coloured jackets, sagging pants and chains and badass-like leather jackets. 
 
-Over the last few decades, men's fashion has been a subject of a massive transformation.
+<strong><i> Fool me once - shame on you. <br />
+Fool me twice - shame on me. <br/>
+Fool me all the time - welcome to the world of modern male fashion. </i></strong>
 
-New male style trends keep popping up from everywhere and with a more or less subtle help of bloggers and media celebrities unconsciously endorsing this new style of dressing they’ve started to become our new norm.
+Lets face it, gentleman - to most of us fashion is a tough topic to talk about.  And, funny enough, it was never really your fault.
+
+If you were lucky enough to be born a female the rules have always been easy - the more feminine you looked, the more attractive you became in the eyes of men.
+
+That means that following the famous <i> "tight dress + high heels + long hair" </i> formula pretty much would always guarantee a solid stream of male attention. 
+
+
+And, most importantly, literally EVERYBODY knows how it works. A girl would have to be deaf, blind and mute to not notice how patiently the TV, magazines and modern culture have been pushing this view on female fashion directly into brains of single generation of women.
+
+<strong> But for us - men - things have been very much different. </strong>
+
+Firstly, assuming you were not a son of Gianni Verscace or Karl Lagerferd throughout your early stages of life up until you stepped into your teenage years you're only fashion stylist was your mother (back then most fathers either had no sense of fashion whatsoever or were simply focused on "bringing in the money" and dressing their children was beyond their scope of concern).
+
+And if you take a look at your family album from that times one of the key reason for your embarassment probably comes from looking at those gastly things your mother made you wear ;).
+
+Secondly, quickly after reaching your highschool years you noticed that there were a few basic types of guys in your school:
+
+<strong> 1. The Nerd </strong>
+
+![Nerd](./nerd.png)
+<p> https://filmfrolic.wordpress.com/2017/10/05/freaks-and-geeks-doesnt-make-high-school-seem-cool-but-thats-ok-nbc-teen-angst-growing-pains-analysis-why-it-was-cancelled-nbc/ 
+
+</p>
+
+
+Nerds were the type of guys still dressed by their mothers. Period. Not only were their outfits not "cool" judging by modern high school standards, but they also looked like something brought back straight from the early times of Commodore 64.
+
+Combine a skinny, "muscle-free" body with a pair of thick glasses and clothes considered fashionable perhaps only in Soviet Russia and what you got was a recipe for a truly miserably looking kid who was completely invisible to almost every single girl in your school worth looking at.
+
+He was certainly not the right source for your style inspiration.
+
+
+<strong> 2. The Rock/Metal Guy </strong>
+
+ [ PICTURES ]
+
+Leather jacket? Check. <br /> <br />
+A worn-out pair of jeans? Hmm. <br /><br />
+Long, poorly maintained hair? Am I looking at...  <br /><br />
+An Iron Maiden/Metallica t-shirt? Of course! - the standard look of every teenage rebel. <br />
+
+Compared to nerds rock/metal guys (i.e. people showing off their belonging to the rock or metal subculture) were definately higher on the social ladder, however but you always noticed a few issues with their lifestyle.
+
+Firstly, since you've never felt the need to shout about your warm feelings towards icecream by dressing like an icecream cone, why would you be so blatant about the music you fancied?
+
+Secondly, you realised that growing long hair was an option only for a small percentage of man and somehow you knew that growing an overly full head of hair would bring you closer to a homeless man rather than a rock star.
+
+And thirdly, rock guys indeed were subject of some female affection, however theese feelings were coming mostly from girls proudly wearing red, green or pink hair, dark clothes and gore makeup and you didn't really fancy participating in blood drinking rituals.  
+
+
+<strong> 3. The Rap Kid </strong>
+
+
 
 
  
-Which would be all fine and great by me if it wasn’t for the simple observation that’s been bothering me for quite some time now.
-
-Namely, following most of this modern advice makes men look like idiots. 
-
-Honestly, how can anyone wearing a pink jacket, tights chinos and white sneakers look like a normal man? Most people never stopped to think this through but wearing bright colours has always been a FEMALE mating strategy for attracting male attention.
-
-Ever wondered why girls fancy wearing PINK tops, RED lipsticks or WHITE shorts so much? Yep, you can’t miss such vivid colours in the wild jungle of your typical urban city and that’s how females are attracting males. How can anyone expect to look manly wearing colors designed by the very nature for women?
-
-And the funny thing about it is that most of them don’t even know about it, firmly believing they’re just keeping up with what’s fashionable these days ;).
- 
-Let me let you on a little secret here – blindly following fashions and trends can cost you a lot of your attraction.
- 
-<strong> “Attraction? Cost? Are you high, man?” – you may ask. </strong>
-
-
-Clearly stating that I’m not going to answer any further questions without my lawyer allow me to present you with an example.
- 
-This is John (actually I’ve no idea what his name is, it’s a dude from stock images, so he might be Paul as well. Or Steven. Or Rick).
-
